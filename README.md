@@ -1,3 +1,3 @@
 # Amba-s-Endless-Muani
-Woi kontol iki epep
+Fortinaite or Babaji
 Babaji 
